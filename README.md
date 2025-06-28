@@ -2,3 +2,10 @@
 
 " Delete , Delete , Delete , DELETE , DELETE ! "
 
+Teru Mikami. - Iwc most times. - Discord is mikamiswitness . ask b4 add.
+
+" God , I could try ! To be the one , to be the one.. "
+
+wip
+
+"I'll do it for life ! My love , my alibi , tonight .. "
